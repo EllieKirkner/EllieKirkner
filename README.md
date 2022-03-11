@@ -2,7 +2,7 @@
 - 👀 I’m interested in...video game theory, GBL practices, D&D, and learning a little bit about absolutely everything.
 - 🌱 I’m currently learning...how to build my own 10th century hurdy gurdy.
 - 💞️ I’m looking to collaborate...sometime in the future. Not taking on additional projects until I'm out of grad school.
-- 📫 How to reach me...put a good cup of espresso under a box trap at dawn and wait patiently.
+- 📫 How to reach me...put a good cup of espresso under a box trap at dawn and wait patiently. Or drop me a line @theEllieKirkner on Twitter.
 
 Thanks for reading, and stay human.
 
